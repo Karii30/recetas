@@ -1,4 +1,5 @@
 # Spaghetti Alfredo
+**4 porciones**
 ## Ingredientes 
 - 1 paquete de spaghetti.
 - 5 lámionas de jamón acaramelado cortado en tiritas.
